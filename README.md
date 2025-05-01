@@ -1,4 +1,4 @@
-# Designer
+# Esther Ho
 
 ### Education
 Marketing Management, BA
